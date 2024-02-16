@@ -1,6 +1,4 @@
-Sure, here's a sample bio for your GitHub profile:
 
----
 
 **About Me:**
 
